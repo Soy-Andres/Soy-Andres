@@ -4,7 +4,7 @@
 - 💞️ I am looking to collaborate on small projects and video game or interactive projects.
 - 📫 How to contact me Email: Am9171560@gmail.com
 - 😄 Pronouns: Méndez or Andrés.
-- ⚡Fun fact: I like many things, but I would like to specialize in just one.
+- ⚡Fun fact: I like many things, but all with videogame and 3D.
 
 <!---
 Soy-Andres/Soy-Andres is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
